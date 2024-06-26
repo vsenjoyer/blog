@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Hi there I am Sid Shirodkar!
 
-Maybe say a some things about yourself.
+I love painting Miniatures, Marine Biology and Rowing.
 
-Or maybe what you plan to blog about.
+My username for most things is Sidomelet and I hate onions. 
